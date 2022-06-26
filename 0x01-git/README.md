@@ -1,1 +1,1 @@
-Hey there
+I am a child of God
